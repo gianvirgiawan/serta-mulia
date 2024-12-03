@@ -1,0 +1,1 @@
+halo dunia, saya capek
